@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Frenzyyy
 
-I'm a developer, phonk producer, and Discord bot creator.  
+I’m the glitch in their systems — unseen, untouchable.  
 Follow me on Instagram: [@7._zip](https://instagram.com/7._zip)
 
 ---
